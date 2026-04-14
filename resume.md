@@ -8,7 +8,7 @@ Ian Szymanski is a designer who specializes in marketing and branding across all
 
 ## Education
 
-**Bachelors of Visual Communication Design: Interactive Design**
+**Bachelors of Visual Communication Design: Interactive Design, Graphic Design**
 
 Eastern Washington University, Cheney, WA
 
